@@ -1,4 +1,4 @@
-### Hi there, I'm L4evis]
+### Hi there, I'm L4evis
 
 I'm a solo indie game developer. I love blending hard science fiction, thermodynamics, and historical realism into immersive interactive experiences. No fantasy, no magic - just pure science and mechanics.
 
